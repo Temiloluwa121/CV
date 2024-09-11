@@ -34,7 +34,7 @@ If you'd like to discuss a potential project, provide feedback on my designs, or
 
 Email: Adedaratemiloluwa@gmail.com 
 <br>
-Twitter: @AdedaraTem72425
+Twitter: https://x.com/AdedaraTem72425?t=gQc9ox1JMMIq9ydRlRI30Q&s=09
 
 Feel free to explore, learn from, and use my designs as inspiration for your own projects.
 
